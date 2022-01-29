@@ -1,5 +1,5 @@
-i make stuff
-be sure to check it out
+i make stuff.
+be sure to check it out!
 PixelAesthetics#0303
 
 <!---
